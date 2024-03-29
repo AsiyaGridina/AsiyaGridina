@@ -8,7 +8,8 @@
 
 ## Мои сертификаты
 
-[![Udemy](https://play-lh.googleusercontent.com/dsCkmJE2Fa8IjyXERAcwc5YeQ8_NvbZ4_OI8LgqyjILpXUfS5YhEcnAMajKPrZI-og=w256)](https://www.udemy.com/certificate/UC-047ac45b-1b19-4864-838f-b54deb48a59b/)    [![Stepik](https://stepik.org/media/cache/images/courses/63054/cover_foIuz1t/6bc976a3abd69e9e3e5163a5973a8ccf.jpg)](https://stepik.org/cert/1552900)
+[![Udemy](https://play-lh.googleusercontent.com/dsCkmJE2Fa8IjyXERAcwc5YeQ8_NvbZ4_OI8LgqyjILpXUfS5YhEcnAMajKPrZI-og=w256)](https://www.udemy.com/certificate/UC-047ac45b-1b19-4864-838f-b54deb48a59b/)    [![Stepik](https://stepik.org/media/cache/images/courses/63054/cover_foIuz1t/6bc976a3abd69e9e3e5163a5973a8ccf.jpg)](https://stepik.org/cert/1552900) [![Stepik](https://cdn.stepik.net/media/cache/images/courses/118842/cover_x2YzVV6/2a18da44712d1902fd71901ab7860555.jpeg)]([https://stepik.org/cert/1552900](https://stepik.org/cert/2402437) 
+
 
 ## Контакты
 
